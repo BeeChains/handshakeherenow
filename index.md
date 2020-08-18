@@ -2,7 +2,7 @@
 
 ![image](https://user-images.githubusercontent.com/37987346/90468026-9cbc3700-e0e3-11ea-9e02-186030f9e4ce.png)
 
-Make one buisiness deal with the one [Handshake Here Now, send HNS](hs1qx55d7k9v09uetfeasd6hxqwl3jfzut9lsm4kdt). Or send HNS to this address hs1qx55d7k9v09uetfeasd6hxqwl3jfzut9lsm4kdt
+Make a HandshakeHereNow! Send HNS to this address hs1qx55d7k9v09uetfeasd6hxqwl3jfzut9lsm4kdt
 
 ![image](https://user-images.githubusercontent.com/37987346/90470023-60d7a080-e0e8-11ea-9395-7a30f3cb5047.png)
 
